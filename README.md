@@ -1,0 +1,4 @@
+# DuliucaoDeSoldagem
+# SoldagemDiluicao
+# SoldagemDiluicao
+# SoldagemDiluicao
